@@ -6,3 +6,4 @@
 | Rolling Stones | Fingerprint File | 1974
 | The Alan Parsons Project | Eye in the Sky | 1982
 | Jill Scott | Watching Me | 2000
+| Pig Meat Markham | Your Wires Have Been Tapped | 1958
