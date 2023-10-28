@@ -1,4 +1,4 @@
-| Arist| Music Track | Year
+| Artist| Music Track | Year
 | ----- | :---: | ---
 | Nine Inch Nails | The Great Destroyer | 2007
 | Rockwell | Somebody's Watching Me | 1984 
