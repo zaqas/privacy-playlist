@@ -34,3 +34,33 @@
 | Cameron London feat. Montana DeVane & Popcasso | Society | 2020
 | DJ Jism feat. Esquire, A.Beeb & Jms | Privacy | 2021
 | Soulkit feat. Leodaleo & Lawd Odin | Part of Me | 2021
+| Crypt0 Bear | King of Privacy | 2022
+| The Blaupunks | Right To Privacy | 2019
+| Robbie Fulks | Privacy | 2010
+| Klasic Rock | 1984 | 2022
+| Parliament | Let Me Be | 1975
+| Jean Michel Jarre, Edward Snowden | Exit | 2016
+| D-Block Europe feat.  Central Cee | Overseas | 2021
+| Johnnie Taylor | Rumors | 1968
+| Tidal Waves | Satellites | 2019
+| Poetic Ammo | Somebody's Watching | 2000
+| Monye147 | Freak In the Sheets | 2017
+| Ann P, Max Meen | Nobody's Business | 2020
+| Crypt0 Bear | Monero Party | 2021
+| Flat 29 | Spying (On a Woman from Waitrose) | 2012
+| Dallas Angel | priVacy | 2022
+| Zell Marley | Privacy | 2021
+| Panch Pearson | Privacy | 2021
+| Babalan | Big Dato | 2023
+| Rell Shaw | Poor Connection | 2021
+| El Has | Welcome to Their 2030 [Demo 2] | 2023
+| Simon Thought and the Uploads | No Privacy | 2019
+| Ophélie Winter | Into My Privacy | 1998
+| NLN | Privacy | 2019
+| C. Will | Notice Me | 2020
+| Saxon |  Watching You | 2008
+| Anvil | Glass House | 2020
+| Derez De'Shon | Autopilot | 2020
+| Wynter Gordon | Surveillance | 2009
+| Idocrase | Privacy | 2023
+| Gamits | Like White Noise | 2003
