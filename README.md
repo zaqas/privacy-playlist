@@ -64,3 +64,4 @@
 | Wynter Gordon | Surveillance | 2009
 | Idocrase | Privacy | 2023
 | Gamits | Like White Noise | 2003
+| The Exploited | Privacy Invasion | 1987
